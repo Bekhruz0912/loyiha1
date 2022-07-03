@@ -1,1 +1,1 @@
-# loyiha1
+# diabet kasalligi
