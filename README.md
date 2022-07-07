@@ -1,1 +1,1 @@
-# diabet kasalligi
+# parcinssons kasalligi
