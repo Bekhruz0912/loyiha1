@@ -1,1 +1,1 @@
-# parcinssons kasalligi
+# parcinssons kasalligi aniqlik=87
